@@ -1,0 +1,1 @@
+# Resolucion_del_Parcial_1
